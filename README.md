@@ -53,13 +53,7 @@
 ## 🌐 Contact  
 - 📧 Email: *ezana.hasset17@gmail.com*  
 
----
-
-## 📝 Words I Live By  
-
- *“Believe in your flyness… conquer your shyness.”* — Kanye West  
-
-*“I feel like I'm figuring things out, but I don't feel accomplished yet. I still feel like I'm an intern.”* — Virgil Abloh  
-
+---  
+*"I need a room full of mirrors so I can be surrounded by winners."  - Kanye West
 ---
 
