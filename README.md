@@ -54,6 +54,6 @@
 - 📧 Email: *ezana.hasset17@gmail.com*  
 
 ---  
-*"I need a room full of mirrors so I can be surrounded by winners."  - Kanye West
+*"I'm a star how could I not shine?"  - Kanye West
 ---
 
